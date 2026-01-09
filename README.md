@@ -5,9 +5,11 @@
 
 
 
-hi im tsu ^_^ barely active ok
+hi im tsu !! (≧◡≦) **im a minor** and i use he/she ! 
 
-**i had to make ts for tsu. tsu change this when u r back. oke. - rat**
+
+
+**i only play ponytown when wife wants me to :p**
 
 <div style="text-align: center;">
     <img src="https://i.postimg.cc/7LSWH3w9/c15245b71b94d916db474c84300d7fd5.jpg" alt="hi" />
