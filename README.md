@@ -5,7 +5,7 @@
 
 
 
-hi im tsu !! (≧◡≦) **im a minor** and i use he/she ! 
+hi im tsu !! (≧◡≦) and i use **he/she** ! 
 
 
 
